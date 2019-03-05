@@ -1,1 +1,1 @@
-salut c'est jojo l'embrouille
+je suis dieu... ou presque
